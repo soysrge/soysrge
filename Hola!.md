@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @soysrge
-- 👀 am interested in meeting you
+- 👀 am interested in 🚴‍♂️🏊‍♂️🏃‍♂️
 - 🌱 am currently learning full stack programming
 - 💞️ I am looking to collaborate on projects
 - 📫 How to reach me : https://www.linkedin.com/in/sergio-german-diaz/
